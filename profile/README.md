@@ -1,1 +1,1 @@
-Sa Dünya Krdş
+distro.
